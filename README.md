@@ -1,3 +1,15 @@
+No matter how you've reached here, welcome! ☀️
+
+And these are five facts about myself: 💫
+
+- 🌠 Currently I'm studying in Innopolis, following the Data Science track;
+- 🎡 Also I'm studying math, sort of in an unorganized manner;
+- 🤹‍♀️ And I like hiking and juggling;)
+
+You can reach me in telegram, it's also @eyihluyc there 🎈
+
+Cheers🥂
+
 <!---
 
 - 👋 Hi, I’m @eyihluyc
